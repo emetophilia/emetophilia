@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-<a href="https://regoregitatedsacrafice1.straw.page">strawpage 0_o</a>
+<a href="https://regoregitatedsacrafice1.straw.page">strawpage 0_o</a> / <a href="https://frikisonimcrine.straw.page">answering gimmicks UwU</a>
 
 </p>
 ㅤ 
