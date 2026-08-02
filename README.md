@@ -1,8 +1,17 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=tickIemehomo&label=chuds&color=191a18&base=6767676767" />
+  <img width="200" height="100" alt="Untitled" src="https://github.com/user-attachments/assets/5762fb67-c015-4f3b-af63-f545cb931e14" />
+
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/823b7b12-9b45-4e35-9761-659d7720c838" width="400"/>
+<a href="https://regoregitatedsacrafice1.straw.page">strawpage 0_o</a>
+
 </p>
+ㅤ 
+<p align="center">
+<img width="100" height="50" alt="ed35f861be81be2548e514085fb19385" src="https://github.com/user-attachments/assets/ad6431be-7d72-4222-983f-5b0361d14591" />
+
+
+</p>
+
 
